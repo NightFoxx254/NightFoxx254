@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NightFoxx254
+- 👀 I’m interested in Programming(duh), 3d modeling/mechnical design, circuit design, and rock climbing.
+- 🌱 I’m currently learning as much as I can
+- 💞️ I’m looking to collaborate on cool shi*t
+- 📫 How to reach me somehow
+- 😄 Pronouns: he,him,his
+- ⚡ Fun fact: I currently compete in bouldering and climb V8
