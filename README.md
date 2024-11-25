@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on cool sh*t
 - 📫 How to reach me somehow
 - 😄 Pronouns: he,him,his
-- ⚡ Fun fact: I currently compete in bouldering and climb V8
+- ⚡ Fun fact: I currently compete in bouldering and have climbed V8
